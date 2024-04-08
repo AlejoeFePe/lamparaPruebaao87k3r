@@ -1,1 +1,0 @@
-# lamparaPruebaao87k3r
